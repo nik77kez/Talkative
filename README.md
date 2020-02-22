@@ -1,5 +1,5 @@
 # Talkative
 Experiment w/ decibel meter <br />
-Ask teachers Qs <br />
+Teachers Qs <br />
 Pros of being talkative <br />
 Cons of being talkative <br />
