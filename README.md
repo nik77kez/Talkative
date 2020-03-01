@@ -17,7 +17,7 @@
 10. Our expectations of becoming more/less communicative in the future <br />
 11. Interview classmates who consider themselves as a talkative person? <br />
 12. Struggles of talkative people <br />
-13. <br />
-14. <br />
-15. <br />
+13. How to avoid being too talkative? <br />
+14. Does Darta consider herself as talkative person, why? <br />
+15. Does Nikita consider himself as talkative person, why? <br />
 16. Conclusion <br />
