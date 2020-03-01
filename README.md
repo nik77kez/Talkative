@@ -14,3 +14,4 @@ Cons of being talkative <br />
 10.Topics of conversations <br />
 11.Are we now more talkative than we were in the beginning of the school year? <br/>
 12.Our expectations of becoming more/less communicative in the future <br />
+13. we could interview our classmates - find out who is an extrovert and who is an introvert? </br>
