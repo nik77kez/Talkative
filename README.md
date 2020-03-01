@@ -14,4 +14,4 @@ Cons of being talkative <br />
 11.Are we now more talkative than we were in the beginning of the school year? <br/>
 12.Our expectations of becoming more/less communicative in the future <br />
 13. we could interview our classmates - find out who would consider themselves as a talkative person? </br>
-14. Struggles of talkative people
+14. Struggles of talkative people <br />
